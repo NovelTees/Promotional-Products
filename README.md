@@ -1,0 +1,2 @@
+# Promotional-Products
+The team at Novel Tees has an in-depth understanding of brand promotion, which is why our products are the perfect choice. Our workwear is suitable for many professions, as we stock workhi-vis clothing and uniforms. Our clothing covers the whole spectrum of apparel, from tracksuits and polar fleece through to slacks and knitwear. Our headwear is available in a range of styles and designs for excellent promotion. And we supply a range of promotional items, such as bags and mugs.
